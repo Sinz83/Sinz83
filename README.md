@@ -1,5 +1,5 @@
 # 💫 About Me:
-👩🏻‍💻 App Developer for IOS and Apple Products <br>🖼️Multidisciplinary Artist <br>👩🏻‍💻Im into NFT's , Apple and everything code <br>
+👩🏻‍💻 App Developer for IOS <br>🖼️Multidisciplinary Artist <br>👩🏻‍💻 <br>
 
 
 ## 🌐 Socials:
