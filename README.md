@@ -1,5 +1,5 @@
 # 💫 About Me:
-👩🏻‍💻 App Developer for IOS <br>🖼️Multidisciplinary Artist <br>👩🏻‍💻 <br>
+👩🏻‍💻 Junior App Developer for IOS <br>🖼️Multidisciplinary Artist <br>👩🏻‍💻 <br>
 
 
 ## 🌐 Socials:
